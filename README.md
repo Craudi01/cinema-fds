@@ -108,3 +108,7 @@ O Lo-fi já tinhas essas histórias implementadas nele anteriormente, é póssiv
 [Docs do relato](https://docs.google.com/document/d/19zGnUU6alP4K4-cIQ1aMZvmV7GqcnomqHvNyMZZcX0Q/edit?usp=sharing)
 
 <br>
+
+=Slide Apresentação entregar 4=
+
+https://www.canva.com/design/DAGGxFwmEOE/5HSkTcgglxai1-aF04BkgQ/edit?utm_content=DAGGxFwmEOE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
